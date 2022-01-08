@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Development
 - 🌱 I’m currently mastering web dev
 - 💞️ I’m looking to collaborate on Open Source
-- 📫 How to reach me ...avie9500@gmail.com
+- 📫 How to reach me ... https://www.linkedin.com/in/avishkar-vichare-35b19b225/
 
 
 <!---
