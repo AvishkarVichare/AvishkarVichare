@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on Open Source
 - 📫 How to reach me ... 
 - <a href='https://www.linkedin.com/in/avishkar-vichare-35b19b225/'>Linkedin</a> 
-- <a href='https://www.instagram.com/avishkar_plays/'>insta: avishkar_plays</a>
-- also in you want some work for me like developing something for you reach me out on any social media I mentioned
+- <a href='https://www.instagram.com/avishkar_plays/'>Insta: avishkar_plays</a>
+- Also in you want some work for me like developing something for you reach me out on any social media I mentioned
 
 
 <!---
